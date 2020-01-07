@@ -1,1 +1,2 @@
-IM a god boy!
+IM a good boy!
+She a good girl!
